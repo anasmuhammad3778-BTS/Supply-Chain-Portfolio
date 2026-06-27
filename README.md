@@ -175,7 +175,7 @@ GitHub:
 [https://github.com/anasmuhammad3778-BTS]
 
 LinkedIn:
-[linkedin.com/in/mohd-anas-64a07a1b2]
+[https://www.linkedin.com/in/mohd-anas-64a07a1b2/]
 
 ---
 
